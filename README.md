@@ -22,7 +22,7 @@ Daniel Morley
 
 Lohan Myles
 
-Marco Upia - I hate ramen!
+Marco Upia "Loves Ice Cream"
 
 Madelyn Weber
 
