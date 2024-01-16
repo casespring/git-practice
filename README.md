@@ -1,16 +1,16 @@
-# git-practice
+# Git Practice
 
 André Schnyder Castello Branco
 
 Connor Burns  - I make the best guacamole. No debate nescessary. 
 
-James Corriveau
+James Corriveau - "Dumplin"
 
 Devin Gomez
 
-Ethan Hessler
+Ethan Hessler - I like pizza
 
-Becca Jonas
+Becca Jonas Favorite Movie: The Dark Knight
 
 Christopher Kim
 
@@ -25,3 +25,5 @@ Lohan Myles
 Marco Upia - I hate ramen!
 
 Madelyn Weber
+
+test test test test
