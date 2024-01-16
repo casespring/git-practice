@@ -14,7 +14,7 @@ Becca Jonas Favorite Movie: The Dark Knight
 
 Christopher Kim
 
-Kenneth Luo
+Kenneth Luo Favoite Show: Last of Us
 
 Ricardo Merlin
 
