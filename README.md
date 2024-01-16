@@ -2,7 +2,7 @@
 
 André Schnyder Castello Branco
 
-Connor Burns
+Connor Burns  - I make the best guacamole. No debate nescessary. 
 
 James Corriveau
 
