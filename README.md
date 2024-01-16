@@ -2,7 +2,7 @@
 
 André Schnyder Castello Branco
 
-Connor Burns
+Connor Burns  - I make the best guacamole. No debate nescessary. 
 
 James Corriveau - "Dumplin"
 
@@ -22,7 +22,7 @@ Daniel Morley
 
 Lohan Myles
 
-Marco Upia
+Marco Upia - I hate ramen!
 
 Madelyn Weber
 
