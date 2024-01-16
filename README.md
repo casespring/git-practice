@@ -14,7 +14,7 @@ Becca Jonas
 
 Christopher Kim
 
-Kenneth Luo
+Kenneth Luo Favoite Show: Last of Us
 
 Ricardo Merlin
 
